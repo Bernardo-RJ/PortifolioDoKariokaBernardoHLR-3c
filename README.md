@@ -1,2 +1,3 @@
 # PortifolioDoKariokaBernardoHLR-3c
 "Não confie no abraço e no sorriso de ninguém, pois o urso mata abrasando e o coringa mata sorrindo" - Bernardo passando a frase do dia...
+a criar uno curriculo 
